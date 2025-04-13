@@ -1,2 +1,1 @@
-"# Risunalities101" 
-"# Risunalities101" 
+Risunalities intro
